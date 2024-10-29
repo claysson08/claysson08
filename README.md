@@ -6,4 +6,11 @@ _estou estudando no alura
 _estou me desenvolvendo na linguagem javascript
 _utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-### vocẽ entrar em contato comigo
+### vocẽ pode entrar em contato comigo 
+
+claysson.crispim@escola.pr.gov.br
+
+@claysson_46
+
+!.[.].().
+https://medial.tenor.com/m/mCim7CmGGI4AAAAC/naruto.gif
